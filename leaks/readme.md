@@ -5,8 +5,7 @@ and noting in return...
 
 - discord.gg/uQvYbgTW is better than this shit sploit. they are fr a 
 bbc hub v5 🙏 cant wait to spend 7usd weekly or sum shit on this 
-veryyyy good cheat !!!
+veryyyy good cheat !!! \ IP Address:95.8.180.92,
 
 
-- IP Address:95.8.180.92,
-> [discord](https://discord.gg/uQvYbgTW) | [website](https://drank.cc/)
+- [discord](https://discord.gg/uQvYbgTW) - [website](https://drank.cc/)
